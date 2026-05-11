@@ -1,4 +1,4 @@
-# 
+# Enhance Sketch for macOS with top Extension for Sketch for macOS - AI-assisted design and smart objects, the #1 extension. Includes AI-assisted design and smart objects for a
 
 
 
